@@ -1,6 +1,8 @@
 **This article is printed as it appeared in the U. S. Submarine Veterans of WWII magazine _Polaris_, vol. 43, No. 6, December 1999. The [USS Raton (Raton, SS-270)](https://en.wikipedia.org/wiki/USS_Raton) version is by RADM J. W. Davis, USN Ret., who was the Commanding Officer of the Raton at the time of the incident. The [USS Lapon (Lapon, SS-260)] (https://en.wikipedia.org/wiki/USS_Lapon_(SS-260)) version is by CAPT R. C. Gillette, USN Ret., who was the Executive Officer and Navigator at the time of the incident.**
 
-As recorded, and edited here for clarity and spelling, on the USS Raton (SS-270) website, formerly at http://www.ratonss270.com/ss270-shipmates-stories2.html
+A brief account of this event is presented by Theodore Roscoe in _United States Submarine Operations in World War II_ (https://amzn.to/3ilqNWT).
+
+First recorded and presented—edited here for clarity and spelling—on the USS Raton (SS-270) website, formerly at http://www.ratonss270.com/ss270-shipmates-stories2.html
 
 # USS Raton Version
 
@@ -21,9 +23,9 @@ After we returned to Australia I don't recall ever discussing the incident eithe
 The reason I am writing this account after so many years is that in a recent book (1989) and account of the incident is recorded in which it is stated that Raton "went into her (Lapon) area" with no explanation why. It further stated that Raton was "moving along underwater" when the attack occurred, when in fact Raton was cruising on the surface. In none of the post war reports I have read has the reason why Raton was in Lapon's area been thoroughly recorded. In fact in all of the reports there is a strong inference that Raton was at fault. On the basis of that "Ultra" message to me I believed that we were required to enter Lapon's area in order to carry out orders. I further believe that the chief cause of this unfortunate incident probably had its birth in the Staff Headquarters back in Australia.
 
 
-# LAPON VERSION
+# USS Lapon Version
 
-**by CAPT R. C. Gillette, USN Ret**
+**by CAPT R. C. Gillette, USN Ret.**
 
 RADM Jim Davis's, USN Ret., interesting recollection of the Lapon vs Raton incident in the South China Sea on 27 May 1944 as reported in the January 1992 of _Shipmate_ brought back similar memories that will remain forever etched in my memory bank.
 
